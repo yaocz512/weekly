@@ -7,6 +7,8 @@
 - **It’s not necessary to tell all you know. It’s not ladylike—in the second place, folks don’t like to have somebody around knowin’ more than they do. It aggravates ‘em. You’re not gonna change any of them by talkin’ right, they’ve got to want to learn themselves, and when they**
   **don’t want to learn there’s nothing you can do but keep your mouth shut or talk their language.**---[*To Kill A Mockingbird*]
   
+- 2020/07/10,正确的家庭教育对孩子的重要性
+
 - #### 遇见大咖-张磊2018-价值投资
   
   - 第一性原理,有能力问最基本的问题是一个重要的学习能力
@@ -73,4 +75,3 @@
 
   - 坚定的追求长期的结构性投资机会.**押注创新、重仓未来**,*如:生物医药,医疗器械,先进制造,原发科技,软件服务,消费互联网,新兴消费品牌和服务*. 还有以制造业升级为代表的传统产业.
   - 充分发挥高瓴全产业链投资的优势,帮助企业长期成长.
-  - 

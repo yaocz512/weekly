@@ -5,4 +5,5 @@
 **七月**
 
 - 第 001 期	[第一期](docs/week-1.md)
+- 第 002 期    [第二期](/Users/yaocz/weekly/docs/week2.md)
 
